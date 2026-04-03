@@ -1,1 +1,0 @@
-# ynantr.github.io
